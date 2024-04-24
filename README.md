@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @okmateo
-- 📫 How to reach me: okmateo@hotmail.com
+- 📫 How to reach me: okmateo@proton.me
 - ⚡ Fun fact: Hmm
 
 <!---
